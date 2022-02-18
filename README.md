@@ -1,5 +1,4 @@
 - I’m Arigato Simarmata
-- 4 years as programmer.
 - 📫 Email : arigatosimarmata@gmail.com
 
 <!---
