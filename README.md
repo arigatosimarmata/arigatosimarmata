@@ -1,4 +1,4 @@
-- I’m Arigato Simarmata
+- Hi :)
 - 📫 Email : arigatosimarmata@gmail.com
 
 <!---
